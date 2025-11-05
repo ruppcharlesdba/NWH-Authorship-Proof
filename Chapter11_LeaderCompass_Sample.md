@@ -1,3 +1,4 @@
+**Human Note:** This chapter was written by me. AI (Claude) suggested several transitions — I rejected 8, kept 2.
 Chapter 11 - The Leader Compass
  The Leader Compass: Recalibrating Direction Through Honor
 Every organization needs strategy. Every leader needs direction. But without a moral compass, both become navigation without north—efficient motion toward uncertain ends.
